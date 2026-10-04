@@ -1,1 +1,1 @@
-# Team-Neotic
+# Team-Noetic
